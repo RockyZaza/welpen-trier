@@ -1,0 +1,176 @@
+---
+meta-author: N. Bolden
+meta-description: Investigativer Bericht: Tierschutzfall Trier 2024-2026. Zwei Würfe, zehn tote Welpen, kein Tierhaltungsverbot. Von N. Bolden.
+meta-og:description: Wie ein dokumentierter Tierschutzfall im Raum Trier trotz Auflagen, Ermittlungen und Sicherstellungen weiter eskalierte.
+meta-og:title: Elf Welpen. Zehn tote Geschwister. — Tierschutzfall Trier
+meta-og:type: article
+meta-robots: index, follow
+meta-viewport: width=device-width, initial-scale=1.0
+---
+
+
+Investigativer Bericht / Tierschutz / Strafverfahren Trier · Aktualisiert 19. Mai 2026
+
+Von N. Bolden
+
+# Elf Welpen.  Zehn tote Geschwister.
+
+Wie ein dokumentierter Tierschutzfall im Raum Trier trotz Auflagen, Ermittlungen und Sicherstellungen weiter eskalierte.
+
+Im November 2025 will Caro Robens einem Cane-Corso-Welpen aus dem Tierheim Trier ein Zuhause geben. Sie bekommt eine Absage. „So etwas kann ich nicht verstehen", sagt sie später. Sie habe Platz. Erfahrung. Geld.
+
+Was sie nicht weiß: Die Welpen, auf die sie sich bewirbt, wurden wenige Monate zuvor vom Veterinäramt Trier-Saarburg sichergestellt — Glow Kosmetikstudio, Ehranger Straße, Trier-Ehrang, § 16a Abs. 1 S. 2 Nr. 2 TierSchG. Zehn Geschwister aus einem früheren Wurf sind da bereits tot.
+
+Mai 2024 — Medardstraße, Trier-Süd
+
+Ein Cane Corso läuft blutend durch die Straße. Vorher war er an der Zimmerdecke befestigt. Eine Leine. Ein Deckenhaken. Der Halter verlässt die Wohnung. Der Hund beißt sich frei.
+
+Später fotografiert jemand die Blutschlieren an der Türzarge. Die Pfote bleibt monatelang unbehandelt.
+
+Anwohner erinnern sich an den Geruch. Schwer. Süßlich. Sommerhitze auf Beton. Irgendwann wird das Haus professionell geräumt.
+
+Der Hund heißt Rocky. Sein Halter beschreibt ihn in Nachrichten, die der Redaktion vorliegen, wiederholt als „Psycho". Er weiß um die Trennungsangst des Tieres.
+
+Im Oktober kommt eine Hündin dazu. Dreizehn Tage später ist sie trächtig.
+
+11. Januar 2025
+
+Fünfzehn Welpen kommen zur Welt. Kein Tierarzt. Keine Vorbereitung. Der Halter ist zunächst nicht da.
+
+Als er kommt, sagt er — so steht es in der Angabe zur Sache gegenüber dem Veterinäramt Trier-Saarburg:
+
+„Das sind so viele, wir müssen jetzt schnell Käufer finden, damit wir Anzahlungen bekommen."
+
+Zehn Welpen sterben. Das Landesuntersuchungsamt Koblenz stellt E. coli variatio haemolytica als Todesursache fest (Az. 2025-4104-000049). Eine Infektion, die nach Einschätzung von Fachstellen bei frühzeitiger tierärztlicher Versorgung vermeidbar gewesen sein könnte.
+
+Was mit den toten Welpen geschieht, lässt sich später für die meisten nicht mehr nachvollziehen. Nur fünf bleiben übrig.
+
+Die Zeuginnen schlafen kaum noch. Sie wärmen Milch an. Sie füttern nachts mit der Flasche. Sie leihen Geld. Sie fahren zur AniCura Tierklinik Trier — obwohl der Halter 2,5 Kilometer entfernt wohnt.
+
+Am 25. Januar fordert er drei Welpen zurück. Später verkauft er sie — nach vorliegenden Chats unter Angaben zur Rasse und zum Gesundheitszustand. Mit dem Geld fliegt er nach Mallorca.
+
+Eine der Frauen bekommt Monate später einen Mahnbescheid über 1.030,55 Euro. Tierarztrechnungen. Ausgestellt auf ihren Namen, sagt sie, ohne ihr Wissen.
+
+März 2025
+
+Erste Meldungen beim Veterinäramt kamen von Zeuginnen aus dem Umfeld der Tiere.
+
+Die Meldungen beim Veterinäramt waren zu diesem Zeitpunkt bereits von unabhängigen Zeuginnen erstattet worden — nicht von der Person, gegen die der Beschuldigte Anzeige erstattete.
+
+Gegenüber dem Veterinäramt gab er an, eine der Zeuginnen habe die Welpen unerlaubt dem Muttertier entrissen. Das Amt eröffnete daraufhin ein Ordnungsverfahren gegen sie (Az. 12/TS/BoNa).
+
+Erst im Zuge dieses Verfahrens schilderte die Betroffene dem Veterinäramt das vollständige Bild. Was sie zu diesem Zeitpunkt tat — und warum.
+
+Der Kontrollbericht vom 30. September 2025, unterzeichnet von Amtstierarzt Dr. Matthis, hält fest: keine Mängel. Ernährungs- und Pflegezustand gut. Die Tiere haben alles was sie brauchen.
+
+Das Ordnungsverfahren wurde nach ihrer Stellungnahme eingestellt.
+
+In einer Nachricht, die laut Aktenlage Teil des Ermittlungsverfahrens ist, schreibt der Beschuldigte:
+
+„Wenn die nicht aufhört zu reden, dann rufe ich auch Jugendamt an."
+
+„Nicht für Social Media. Nicht für die Presse. Einfach, weil jemand festhalten muss, wie es dort aussieht."
+
+Mai 2025 — Kastrationsauflage läuft
+
+Nach dem ersten Wurf erlässt das Veterinäramt eine Kastrationsauflage. Der Beschuldigte ist im Ausland.
+
+Die Hunde sitzen mehr als 24 Stunden in einer Gitterbox — 110 × 70 × 75 cm. Ein Nachbar befreit sie.
+
+Als eine Bekannte später die Wohnung betritt, riecht sie zuerst Urin. Kurz darauf steht sie in Fäkalien.
+
+Dann sieht sie die Hündin. Rippen unter dem Fell. Geschwollene Zitzen. Ein schwerer Bauch. Nach Darstellung der Zeugin steht kein Wasser bereit.
+
+Sie kennt Zaza zu diesem Zeitpunkt noch gar nicht. Sie fotografiert trotzdem alles. Nicht für Social Media. Nicht für die Presse. Einfach, weil jemand festhalten muss, wie es dort aussieht.
+
+Später landen die Bilder in der Akte.
+
+18. Juni 2025
+
+Am 18. Juni 2025 kommen elf weitere Welpen zur Welt. Trotz laufendem Verfahren. Trotz Kastrationsauflage.
+
+27. Juni 2025, 09:31 Uhr
+
+Der Beschuldigte schreibt einer Zeugin:
+
+„Bitte sag den Veterinäramt das Zaza bei dir ist."
+
+Während sie telefoniert, wird die Hündin ausgeführt. Die Welpen liegen beim Nachbarn in der Badewanne. Die Kontrolle endet vorzeitig.
+
+Wenige Tage später bringt der Beschuldigte Zaza und die Welpen in das Glow Kosmetikstudio, Ehranger Straße, Trier-Ehrang. Eine Tierarztrechnung vom 3. Juli 2025 (RN 134547), adressiert an die Betreiber des Studios, belegt dies.
+
+7. Juli 2025 — Sicherstellung
+
+Veterinäramt Trier-Saarburg. Polizei. Ehranger Straße. Zaza und elf Welpen werden gemäß § 16a Abs. 1 S. 2 Nr. 2 TierSchG sichergestellt. Der Rüde verbleibt beim Beschuldigten. Ein Tierhaltungsverbot nach § 16a Abs. 1 S. 2 Nr. 3 TierSchG wird nicht erlassen.
+
+Rocky bleibt.
+
+Das Tierheim Trier-Zewen übernimmt zwölf Hunde. Eine der Hündinnen bekommt später einen neuen Namen: Ronja Räubertochter, von allen „Püppi" genannt.
+
+Auf sie bewirbt sich Monate später Caro Robens. Sie bekommt eine Absage.
+
+Sommer 2025 — Druck auf Zeuginnen
+
+Der Fall wird öffentlich. Am 7. August postet der Beschuldigte auf Instagram ein Luftgewehr mit Zielfernrohr. Rocky sitzt im Hintergrund. Das Bild wird direkt an die Hauptzeugin weitergeleitet.
+
+Fast zeitgleich erscheinen Auszüge aus Ermittlungsakten auf Instagram. Namen. Chats. Vorwürfe.
+
+Kurz darauf gehen Meldungen beim Jugendamt Trier-Saarburg ein. Mehrere Hausbesuche. Ein Polizeieinsatz. Keine Beanstandungen.
+
+März 2026 — Koordinierte Abmahnungen
+
+Beide Hauptzeuginnen erhalten anwaltliche Schreiben. Dieselbe Kanzlei. Neun Tage Abstand. Aufeinanderfolgende Aktenzeichen: 377/26CR81 und 378/26CR81. Einer der Ansprüche betrifft Bella — einen Welpen aus dem ersten Wurf vom Januar 2025. Als die Euthanasie-Spritze bereits aufgezogen war, entschied eine der Zeuginnen sich gegen ärztlichen Rat, Bella und die vier anderen Überlebenden selbst zu versorgen. Bella lebt seit 16 Monaten bei ihr. Gefordert wird ihre Herausgabe.
+
+Am selben Tag war ein Sühneversuch angesetzt. Er wurde aufgehoben. Das Schiedsamt bestätigte nach Stellungnahme der Betroffenen, dass wesentliche Informationen bei Antragstellung offenbar nicht vorlagen. Weitere Schritte erfolgen ausschließlich auf dem Rechtsweg.
+
+Der Rechtsanwalt der Zeuginnen schreibt in seiner Antwort, versandt per beA:
+
+„Er nutzt die Hilfsbereitschaft seiner Mitmenschen aus, um ihnen dann im Nachgang maximalen Schaden zuzufügen."
+
+Und: Er möge es unterlassen, zu versuchen, Profile in sozialen Netzwerken zu hacken.
+
+Die Halterfrage
+
+Wer rechtlich als Halterin der Cane-Corso-Hündin Zaza gilt, ist bis heute umstritten.
+
+Nach vorliegenden Unterlagen war während beider Würfe weiterhin die frühere Besitzerin chip-registriert. Eine Ummeldung soll ausgeblieben sein, weil der Kaufpreis nach Darstellung Beteiligter nicht vollständig bezahlt wurde.
+
+Gleichzeitig wird der Beschuldigte in den Akten als faktischer Halter geführt — also als die Person, die Haltung, Versorgung und Entscheidungen über die Tiere übernahm.
+
+Private Chats, die der Redaktion vorliegen, deuten ebenfalls darauf hin, dass Rocky dem unmittelbaren Verantwortungsbereich des Beschuldigten zugeordnet war. Der Hund wird dort wiederholt im Zusammenhang mit Abholung, Betreuung und Alltagsorganisation erwähnt.
+
+Vor dem Verwaltungsgericht Trier läuft derzeit ein Verfahren über die Rückgabe der Hunde (Az. 8 K 8397/25.TR). Kläger sind die Betreiber des Studios, in dem Zaza und die Welpen im Juli 2025 sichergestellt wurden.
+
+Das Tierheim Trier-Zewen teilte mit, Zaza sei vermittelt worden. Der aktuelle Verbleib ist nicht bestätigt.
+
+1. Mai 2026
+
+Am selben Tag, an dem der Sühneversuch scheitert, postet der Beschuldigte ein Bild von Rocky. Es ist das letzte bekannte Bild. Öffentlich. Instagram. Das Strafverfahren läuft noch immer (Az. 167056/26022026/1425, PI Trier). Kein Tierhaltungsverbot. Das Verwaltungsgerichtsverfahren über die Rückgabe der Tiere läuft weiter (Az. 8 K 8397/25.TR, VG Trier).
+
+Ebenfalls im Mai 2026 meldet eine Mitarbeiterin des ART dem Veterinäramt Trier-Saarburg eine Sichtung. Nach vorliegenden Hinweisen handelt es sich dabei vermutlich um einen Welpen aus dem sichergestellten Wurf vom Juni 2025 — vermittelt auf einem Weg, der dem Beschuldigten möglicherweise Zugriff ermöglicht. Ob dies zutrifft, ist Gegenstand laufender Prüfungen.
+
+5. Mai 2026
+
+Zwei Zeugen sehen Zaza in Trier. In Begleitung einer Frau aus dem Umfeld des Beschuldigten.
+
+Die Identifikation stützt sich auf die Zitzen — charakteristisch verändert nach zwei Würfen, erkennbar auf einem vorliegenden Vergleichsbild. Aktuelle Fotos der Sichtung existieren nicht. Beide Zeugenaussagen sind schriftlich dokumentiert.
+
+Das Veterinäramt wurde informiert. Die Antwort: Aus den vorliegenden Unterlagen ergäben sich keine neuen Fakten, die ein Einschreiten rechtfertigten.
+
+Ob Zaza offiziell noch bei dem Zuhause ist, an das das Tierheim Trier-Zewen sie vermittelt hat, konnte bis Redaktionsschluss nicht bestätigt werden.
+
+Rocky ist noch beim Beschuldigten. Kein Tierhaltungsverbot.
+
+Caro Robens fragte: Warum sitzt dieser Hund noch immer im Tierheim?
+
+Stellungnahme-Anfragen
+
+Vor Veröffentlichung wurden Stellungnahmen angefragt bei Veterinäramt Trier-Saarburg (Dr. Matthis), Kreisverwaltung Trier-Saarburg (Pressestelle Thomas Müller) sowie Tierheim Trier-Zewen. Keine Stellungnahme bis Redaktionsschluss.
+
+---
+
+*Impressum*
+
+Autorin: N. Bolden · Kontakt: marketingconsultant.trier@gmail.com · Erstveröffentlichung: 10. Mai 2026 · Aktualisiert: 19. Mai 2026 · Bildmaterial: 15 Aufnahmen, honorarfrei
+
+Für alle Beteiligten gilt die Unschuldsvermutung. Ermittlungen und Gerichtsverfahren dauern an. Alle Angaben basieren auf vorliegenden Verfahrensdokumenten und schriftlich gesicherten Zeugenaussagen.
